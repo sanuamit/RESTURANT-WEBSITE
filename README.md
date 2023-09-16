@@ -20,10 +20,10 @@ Main Courses: Savor our delectable main course options, from classics to gourmet
 Desserts: Treat yourself to our scrumptious dessert offerings. 🍰🍨
 Beverages: Complement your meal with our range of refreshing beverages. 🍹🥤
 How to Enjoy Food Restaurant 🍽️🎉
-Visit Our Website: Click here => to explore our menu and conveniently place orders online. 🌐📲
+Visit Our Website: Click here => https://sanuamit.github.io/RESTURANT-WEBSITE/ to explore our menu and conveniently place orders online. 🌐📲
 Visit Our Restaurant: Join us at our restaurant location for an authentic and enjoyable dining experience. 🏡🚗
 Catering and Events: Contact us for special events or catering services tailored to your needs. 🎈🎊
 Stay Connected: Follow us on social media for the latest updates, promotions, and mouthwatering food photos. 📷📢
 At Food Restaurant, we are not just a restaurant; we are your ultimate culinary destination. Explore, indulge, and satisfy your cravings with us! 🍴🌟🎉
 
-Click here => to visit Food Restaurant and embark on a gastronomic adventure like no other! 🍽️🥂🍰🌮
+Click here => https://sanuamit.github.io/RESTURANT-WEBSITE/ to visit Food Restaurant and embark on a gastronomic adventure like no other! 🍽️🥂🍰🌮
